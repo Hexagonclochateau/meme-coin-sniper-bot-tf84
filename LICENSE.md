@@ -1,4 +1,4 @@
-# 
+# elite Scanner for meme coin sniper bot | honeypot-detection & price-impact-analysis is the best meme coin sniper bot, featuring honeypot-detection and price-impact-analysis. Fast,
 
 
 
